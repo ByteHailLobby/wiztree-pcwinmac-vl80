@@ -1,4 +1,4 @@
-# 
+# Seguro WizTree fluxo de trabalho para Mac OS | Gratuito WizTree fluxo de trabalho para PC Windows. Com indexacao de arquivos e suporte multi-formato — otimizado para máximo desempenho em cada plataforma.
 
 
 
